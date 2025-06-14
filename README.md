@@ -1,4 +1,3 @@
 - Italian
 - No, I am not Super Mario, that's my uncle.
-- Bizarre
-- 
+- Bizarre (JoJo >>>)
